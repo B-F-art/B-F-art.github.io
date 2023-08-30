@@ -1,2 +1,2 @@
-# B-F-art.github.io
+# BFart
 # uh hi does this work
